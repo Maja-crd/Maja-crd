@@ -37,6 +37,14 @@ What characterizes me? 🔎 <br>
 In the future I dream of becoming a psychotherapist, however, before starting my career I want to do what I know and like - graphic design and copywriting. 
 Zerkij to see what I managed to do! 👇
 
+<br> <br>
+<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/kubek.png" width="532px"></img>
+<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/Petsy%20moja%20reklama.png" width="473px"></img>
+<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/etykieta%20do%20szampana.png" width="515px"></img>
+<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/Ulotka.png" width="490px"></img> <br>
+<br><br>
+ <p align="center">👉 <a href="https://github.com/Maja-crd/Maja-crd/tree/main/Projekty" target="_blank">więcej moich prac znajdziesz tutaj/find more of my work here</a> 👈 </p> 
+
 
 
 
