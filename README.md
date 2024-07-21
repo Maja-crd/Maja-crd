@@ -38,10 +38,10 @@ In the future I dream of becoming a psychotherapist, however, before starting my
 Zerkij to see what I managed to do! 👇
 
 <br> <br>
-<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/kubek.png" width="532px"></img>
-<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/Petsy%20moja%20reklama.png" width="473px"></img>
-<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/etykieta%20do%20szampana.png" width="515px"></img>
-<img src="https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/Ulotka.png" width="490px"></img> <br>
+![ok](https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/kubek.png)
+![ok2](https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/Petsy%20moja%20reklama.png)
+![ok3](https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/etykieta%20do%20szampana.png)
+![ok4](https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/Ulotka.png)
 <br><br>
  <p align="center">👉 <a href="https://github.com/Maja-crd/Maja-crd/tree/main/Projekty" target="_blank">więcej moich prac znajdziesz tutaj/find more of my work here</a> 👈 </p> 
 
