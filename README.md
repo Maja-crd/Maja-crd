@@ -4,7 +4,7 @@
 <p align="center"> 🐾🐾🐾 </p>
 
 Polish:<br>
-Jestem dziewiętnastoletnią uczennicą Technikum Ekonomicznego im. Flagi Polski w Elblągu. Uczęszczam na kierunek technika reklamy, obecnie jestem w klasie maturalnej. Jestem również wolontariuszką w lokalnym schronisku. Na profilu znajdziesz mnóstwo moich prac graficznych, które wykonałam sama.
+Jestem dwudiestoletnią absolwentką Technikum Ekonomicznego im. Flagi Polski w Elblągu. Uczęszczałam na kierunek technika reklamy. Jestem również wolontariuszką w elbląskim schronisku. Na profilu znajdziesz mnóstwo moich prac graficznych, które wykonałam sama.
 
 Co mnie charakteryzuje? 🔎<br>
 🤲 ogromna empatia; <br>
@@ -22,7 +22,7 @@ Zerkij żeby zobaczyć, co udało mi się zrobić! 👇
 <p align="center"> 🐾🐾🐾 </p>
 
 English: <br>
-I am a nineteen-year-old student of the Polish Flag Technical School of Economics in Elblag. I am attending the direction of advertising technician, and I am currently in the graduating class. I also volunteer at a local shelter. On the profile you will find a lot of my artwork, which I made myself.
+I am a two-decade graduate of the Economic Technical School named after the Polish Flag in Elbląg. I attended the direction of advertising technician. I am also a volunteer at the Elbląg shelter. On the profile you will find a lot of my graphic works, which I made myself.
 
 What characterizes me? 🔎 <br>
 🤲 tremendous empathy; <br>
