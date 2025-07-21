@@ -16,8 +16,7 @@ Co mnie charakteryzuje? 🔎<br>
 🗣 umiejętności przywódcze; <br>
 👩‍🎨 kreatywność/oryginalność. <br>
 
-W przyszłości marzę o tym, aby zostać psychoterapeutą, jednakże przed rozpoczęciem kariery chcę zajmować się tym co umiem i lubię - grafiką oraz copywritingiem. 
-Zerkij żeby zobaczyć, co udało mi się zrobić! 👇
+W przyszłości marzę o tym, aby zostać psychoterapeutą. Jednakże przed rozpoczęciem kariery chcę zajmować się tym, co umiem i lubię – grafiką oraz copywritingiem. Zerknij, żeby zobaczyć, co udało mi się zrobić! 👇
 
 <p align="center"> 🐾🐾🐾 </p>
 
@@ -34,8 +33,7 @@ What characterizes me? 🔎 <br>
 🗣 leadership skills; <br>
 👩‍🎨 creativity/originality. <br>
 
-In the future I dream of becoming a psychotherapist, however, before starting my career I want to do what I know and like - graphic design and copywriting. 
-Zerkij to see what I managed to do! 👇
+In the future I dream of becoming a psychotherapist. However, before starting my career, I want to do what I know and like - graphic design and copywriting. Take a peek to see what I've been up to! 👇
 
 <br> <br>
 ![ok](https://github.com/Maja-crd/Maja-crd/blob/main/Projekty/kubek.png)
