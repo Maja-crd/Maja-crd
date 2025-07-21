@@ -4,7 +4,7 @@
 <p align="center"> 🐾🐾🐾 </p>
 
 Polish:<br>
-Jestem dwudiestoletnią absolwentką Technikum Ekonomicznego im. Flagi Polski w Elblągu. Uczęszczałam na kierunek technika reklamy. Jestem również wolontariuszką w elbląskim schronisku. Na profilu znajdziesz mnóstwo moich prac graficznych, które wykonałam sama.
+Jestem dwudziestoletnią absolwentką Technikum Ekonomicznego im. Flagi Polski w Elblągu. Uczęszczałam na kierunek technika reklamy. Jestem również wolontariuszką w elbląskim schronisku. Na profilu znajdziesz mnóstwo moich prac graficznych, które wykonałam sama.
 
 Co mnie charakteryzuje? 🔎<br>
 🤲 ogromna empatia; <br>
